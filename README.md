@@ -42,5 +42,5 @@ Robotics, Signal Processing, AI/ML
 
 ### 📫 let's connect!
 
-email: 📧angelinamc512@gmail.com
+[email📧](angelinamc512@gmail.com)
 [💻linkedin](www.linkedin.com/in/angelina-castro-32894b23a) 
